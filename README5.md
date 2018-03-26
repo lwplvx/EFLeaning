@@ -1,0 +1,76 @@
+# EFLeaning
+note
+
+
+Welcome to our class. We will begin in 2 minutes. To keep a clear and ordered class environment, please turn off your micro phone first if you have background noise, and able it later when you answer the questions. Thanks!
+
+My name is Faye Wang. I’m from Shanghai. In my free time, I like reading, watching movies, swimming and travelling. How about you?
+
+Chen F: Nicky. Form Shanxing. Like fishing, cooking and playing basketball. 
+
+Wen W:Catherine. From Chengdu. Like reading,.
+
+Zhu: Taylor. From Chongqing. Like reading, listening to music. 
+
+Fan Z: Simon. Form Shenzhen. Like fishing, cooking and running.
+
+Andy: From Guangxi. Like playing basketball and listening to music. 
+
+EF=Education First 
+
+Vocabulary
+call in打电话
+sick生病
+ 
+Sentence
+1. Where do you work?
+你在哪儿工作？
+2. What do you do?
+What's your job?
+你是做什么的？
+3. John speaking.我是John.
+=It's John speaking.
+=This is John speaking.
+=It's John.
+4. Don’t worry about it.别担心。
+5. I have a bad cold.我得重感冒了。
+6. I’m not feeling well.我感觉不舒服。
+7. What’s wrong? 怎么了？
+=What's up?
+=What's the matter?
+8. Sorry about that.对于这个很遗憾。
+
+I have a cough.我咳嗽。
+I have a fever.我发烧了。
+I have a runny nose.流鼻涕。
+I have a toothache.我牙疼。
+I have a backache.我背疼。
+I have a stomachache.我肚子痛。
+I have a headache.我头疼。
+I have a sore throat.我喉咙痛。
+I have a flu. 我得了流感。
+
+Dialog
+--James Brown speaking.
+我是詹姆斯。
+--Morning, James, it’s Bill.
+早上好，詹姆斯，我是比尔。
+--Hi, Bill, what’s up?
+你好，比尔，怎么了？
+--I’m not feeling well.
+我感觉不舒服。
+--I’m sorry to hear that. What’s wrong?
+很抱歉，怎么了？
+--I have a bad cold.
+我重感冒了。
+--That’s too bad, but don’t worry about. Stay at home and feel better soon.
+那太糟糕了，但是别担心。呆在家很快就会好了。
+--Thanks, James.
+谢谢，詹姆斯。
+
+see the dentist 牙医
+go to hospital 
+
+
+
+
