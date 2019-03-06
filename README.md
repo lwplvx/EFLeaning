@@ -1,7 +1,5 @@
-# EFLeaning Note
+# EFLeaning note
 
-1) [First](https://lwplvx.github.io/LeaningEnglish/first)
-1) [First](https://lwplvx.github.io/LeaningEnglish/first)
-1) [First](https://lwplvx.github.io/LeaningEnglish/first)
-1) [First](https://lwplvx.github.io/LeaningEnglish/first)
-1) [First](https://lwplvx.github.io/LeaningEnglish/first)
+1) [group class](https://lwplvx.github.io/LeaningEnglish/group)
+
+2) [booked class](https://lwplvx.github.io/LeaningEnglish/booked)
